@@ -12,5 +12,6 @@ The birth of a symmetriad comes like a sudden eruption. About an hour beforehand
 The effects of light on a symmetriad are especially striking during the blue day and the red sunset. The planet appears to be giving birth to a twin that increases in volume from one moment to the next. The immense flaming globe has scarcely reached its maximum expansion above the ocean when it bursts at the summit and cracks vertically. It is not breaking up; this is the second phase, which goes under the clumsy name of the ‘floral calyx phase’ and lasts only a few seconds."
 
 
+[Uploading Art Generatif images IA Solaris Perlasca_Dylan.zip…]()
 
 
