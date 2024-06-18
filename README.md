@@ -11,7 +11,6 @@ le texte de Solaris utilisé comme Prompt:
 The birth of a symmetriad comes like a sudden eruption. About an hour beforehand, an area of tens of square miles of ocean vitrifies and begins to shine. It remains fluid, and there is no alteration in the rhythm of the waves. Occasionally the phenomenon of vitrification occurs in the neighbourhood of the funnel left by an agilus. The gleaming sheath of the ocean heaves upwards to form a vast ball that reflects sky, sun, clouds and the entire horizon in a medley of changing, variegated images. Diffracted light creates a kaleidoscopic play of color.
 The effects of light on a symmetriad are especially striking during the blue day and the red sunset. The planet appears to be giving birth to a twin that increases in volume from one moment to the next. The immense flaming globe has scarcely reached its maximum expansion above the ocean when it bursts at the summit and cracks vertically. It is not breaking up; this is the second phase, which goes under the clumsy name of the ‘floral calyx phase’ and lasts only a few seconds."
 
-
-[Uploading Art Generatif images IA Solaris Perlasca_Dylan.zip…]()
+Stanislaw Lem, “Solaris”, traduction de joanna kilmartin et steve cox, a Harvest book - Harcourt, San-Diego-New York-London, 1970, p. 117.
 
 
